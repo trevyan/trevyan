@@ -3,7 +3,7 @@
 ac eikcaj_xd on twitter
 
 <p align="center">
-  <a href="https://rentry.co/blownupcave">ponytown info</a> ﹕
-  <a href="https://rentry.co/westeast">rentry</a> ﹕
+  <a href="https://guns.lol/heiseilupin">guns.lol</a> ﹕
+  <a href="https://rentry.co/apoptoxin">rentry</a> ﹕
   <a href="https://kudoshinichi.atabook.org/">atabook</a>
 </p>
