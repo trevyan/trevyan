@@ -4,6 +4,6 @@ ac eikcaj_xd on twitter
 
 <p align="center">
   <a href="https://guns.lol/heiseilupin">guns.lol</a> ﹕
-  <a href="https://rentry.co/feelnormal">ponytown info</a> ﹕
-  <a href="https://kudoshinichi.atabook.org/">atabook</a>
+  <a href="https://fluffle.cc/彰冬">ponytown info</a> ﹕
+  <a href="https://raddogs.atabook.org/">atabook</a>
 </p>
